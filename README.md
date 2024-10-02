@@ -5,4 +5,3 @@ With a user-friendly interface, you can easily browse upcoming events, filter by
 
 Join ThrottleTrends today and stay ahead of the curve in the automotive scene. Experience the thrill of connecting with other enthusiasts, showcasing your vehicle, and participating in unforgettable car meets. Rev up your passion for cars and discover the trends that drive the community forward!
 
-Feel free to modify any part of it to better fit your vision!
